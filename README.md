@@ -1,1 +1,1 @@
-sustain.github.io
+sustain-investing.github.io
